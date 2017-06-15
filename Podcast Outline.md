@@ -18,9 +18,9 @@ Explanation of T shaped learner from tsummit.org
 
 ## A T Shaped Student in the VT English Department (1 minute)
 
-Translate T shaped student into a PTW major in 2017.
-What are the steps taken to graduate as a T shaped student.
-How is it important for getting the job you want.
+Translate T shaped student into a PTW major in 2017
+What are the steps taken to graduate as a T shaped student
+How is it important for getting the job you want
 
 ### Transition music(10 seconds)
 Dramatic piano music
